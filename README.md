@@ -3,4 +3,4 @@ Gain insights on the conferences you are interested in, giving you control on wh
 
 # Community
 
-[Discord channel](https://discord.gg/rPJJeKZZ)
+[Discord channel](https://discord.gg/c54JcVNk3D) @ Chevere Labs 👍 server 
